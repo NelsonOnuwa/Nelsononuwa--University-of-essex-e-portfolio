@@ -10,7 +10,7 @@ My service philosophy is "Solve a customer's problem by providing exceptional an
 
 I would like to obtain a position with a well-established firm that affords me the opportunity to take on exciting challenges and contribute both to its growth and success. To explore new directions, test out my skills and sharpen my awareness of what motivates me.
 
-*Objectives*:
+Objectives:
 
 To obtain a position with a well-established firm that affords me the opportunity to take on exciting challenges, contribute to its growth and success.
 
